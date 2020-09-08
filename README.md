@@ -1,1 +1,0 @@
-# ydhwsyvo.github.io
